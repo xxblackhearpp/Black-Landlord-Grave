@@ -49,11 +49,18 @@
 3. [网友血泪史](https://tieba.baidu.com/p/1264748471?red_tag=1566814524)
 4. [水木社区网友血泪史](http://www.newsmth.net/nForum/#!article/ZuFang/15855?au=tndbwdc)
 
+---
+
+* 孔繁良，东北人
+电话：13466322231
+建行卡号：6227000015830316890
+1. [网友血泪史](http://www.ttysq.com/forum.php?mod=viewthread&tid=1495172&fromuid=370711)
+
 ### 黑房子列表
 
 天通苑北一区6号楼7层 （赵文生）
 天通苑西二区5栋10单元402 （孔凡凤）
-
+天通西苑50号楼5单元402室 （段相岗、段玉、段毅）
 
 
 ## 抗狗日的黑房东联盟
@@ -62,3 +69,10 @@
 * 邮箱： xxheifangdong@foxmail.com
 
 广大受害同胞，可以加入群告诉我们狗日的黑房东的丑恶罪行或者发邮件告诉我。 我会定期更新到此处，揭露狗日的黑房东的罪行。
+
+
+#### 参考链接
+
+* http://blog.sina.com.cn/s/blog_c23e1f230101j3b2.html
+* http://www.ttysq.com/forum.php?mod=viewthread&tid=2300702
+* http://www.ttysq.com/thread-1495172-3-1.html
