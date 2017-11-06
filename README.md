@@ -55,6 +55,7 @@
 电话：13466322231
 建行卡号：6227000015830316890
 1. [网友血泪史](http://www.ttysq.com/forum.php?mod=viewthread&tid=1495172&fromuid=370711)
+2. [网友血泪史](http://www.ttysq.com/thread-1495172-3-1.html)
 
 ---
 
