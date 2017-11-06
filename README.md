@@ -56,6 +56,14 @@
 建行卡号：6227000015830316890
 1. [网友血泪史](http://www.ttysq.com/forum.php?mod=viewthread&tid=1495172&fromuid=370711)
 
+---
+
+* 孙吉佳，男，1981年6月10日 身份证地址：哈尔滨市呼兰区和平街远都高层A单元503室
+身份证号码：230121198106100832
+1. [网友血泪史](http://www.ttysq.com/forum.php?mod=viewthread&tid=1297114)
+2. [网友血泪史](http://tieba.baidu.com/p/2558131334)
+3. [网友血泪史](https://tieba.baidu.com/p/2558377484?red_tag=3200112895)
+
 ### 黑房子列表
 
 天通苑北一区6号楼7层 （赵文生）
