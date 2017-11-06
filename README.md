@@ -63,6 +63,8 @@
 1. [网友血泪史](http://www.ttysq.com/forum.php?mod=viewthread&tid=1297114)
 2. [网友血泪史](http://tieba.baidu.com/p/2558131334)
 3. [网友血泪史](https://tieba.baidu.com/p/2558377484?red_tag=3200112895)
+![孙吉佳](https://github.com/xxblackhearpp/Black-Landlord-Grave/blob/master/pic/sunjijia.jpg)
+
 
 ### 黑房子列表
 
