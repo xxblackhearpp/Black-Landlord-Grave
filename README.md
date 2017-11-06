@@ -42,10 +42,12 @@
 
 * 帅新美，女，身份证地址：山东省单县莱河镇帅楼行政村帅楼解放街19号
 身份证号码：372925198311060528
-电话：
+电话：13126888976
+她老公杨勇：13520708363
 1. [网友血泪史](https://tieba.baidu.com/p/1265735430?red_tag=1599406858)
 2. [网友血泪史](https://tieba.baidu.com/p/1289971827?red_tag=1570391952)
 3. [网友血泪史](https://tieba.baidu.com/p/1264748471?red_tag=1566814524)
+4. [水木社区网友血泪史](http://www.newsmth.net/nForum/#!article/ZuFang/15855?au=tndbwdc)
 
 ### 黑房子列表
 
